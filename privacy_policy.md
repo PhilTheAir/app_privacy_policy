@@ -1,6 +1,6 @@
 ## Privacy Policy
 
-Liwen Chen built the Good Day app as a Commercial app. This SERVICE is provided by Liwen Chen and is intended for use as is.
+Lingyan Wang built the Good Day app as a Commercial app. This SERVICE is provided by Lingyan Wang and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
